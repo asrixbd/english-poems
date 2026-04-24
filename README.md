@@ -41,3 +41,45 @@ The magic of the midnight hour is fled,
 And once again, the day resumes its throne.
 
 ---
+
+# The Clock That Forgot Time
+
+Time once lived in polished gears,
+Counting laughter, holding years,
+But slowly learned what hearts can do,
+Beyond the seconds passing through.
+
+It watched a man sit by the rain,
+Not chasing wealth or hidden gain,
+Just sharing silence with the street,
+Where lonely moments softly meet.
+
+A woman gave her last warm coat,
+To someone drifting without hope,
+No thought of return or praise or fame,
+Just kindness without need of name.
+
+The city rushed in endless pace,
+Yet missed the tears on every face,
+For speed can blur what eyes should see,
+The quiet truth of “you and me.”
+
+A broken bench beside the park,
+Still held the weight of talks after dark,
+Of dreams once shared by strangers there,
+Now carried only by the air.
+
+The clock forgot to move ahead,
+It paused where human stories led,
+And learned that meaning isn’t found
+In ticking hands that make no sound.
+
+It started counting smiles instead,
+The words of hope the living said,
+Each moment shaped by gentle choice,
+Each silence turned into a voice.
+
+And now it walks with us each day,
+Not guiding time, but showing way,
+That life is more than what we chase,
+It’s how we hold another’s face.
